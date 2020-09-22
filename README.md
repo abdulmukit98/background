@@ -1,3 +1,3 @@
 ### background
 
-[os_walpaper](https://oswallpapers.com/)
+[os walpaper](https://oswallpapers.com/)
